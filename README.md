@@ -8,6 +8,5 @@ Olá! Bem vindo ao meu livro de receitas :wave:
 
 - Bolo de Cenoura
 
-- Empadão de Camarão hmmmmmm esse é bom
-
+- Empadão de Camarão
   
